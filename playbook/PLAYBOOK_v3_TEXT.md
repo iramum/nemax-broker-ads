@@ -54,7 +54,7 @@ NEMAX brings in capital secured on UAE real estate when a buyer is short and the
 
 **NOTE:** Sources are at the foot of each page. Where a number is bank policy and not law, the page says so. Those are the ones worth a second call.
 
-> ⚠️ Названия killers 02, 05, 06, 07 в оглавлении упрощены. Номера и темы те же, но заголовки в тизерах IG звучат по-старому («The non-resident LTV wall», «The DBR ceiling», «The speed problem», «The business-liquidity block»). 🔴 **Решение за тобой:** оставить старые заголовки ради совпадения с лентой или взять новые.
+> ⚠️ Названия killers 02, 05, 06, 07 в оглавлении упрощены. Номера и темы те же, но заголовки в тизерах IG звучат по-старому («The non-resident LTV wall», «The DBR ceiling», «The speed problem», «The business-liquidity block»). 🔴 **Открытый вопрос:** оставить старые заголовки ради совпадения с лентой или взять новые.
 
 ---
 
